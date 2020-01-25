@@ -1,1 +1,0 @@
-# ekntr10.github.io
